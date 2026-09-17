@@ -58,4 +58,4 @@ change the PIN.
 
 ## Contact
 
-[Your LinkedIn URL] · [Your email]
+(https://www.linkedin.com/in/kamsi-nwogu-7129a6378/)· (kamsibixbite7@gmail.com)
